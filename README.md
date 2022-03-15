@@ -5,14 +5,23 @@
 **INGREDIENTES**
 
 ° 1 cucharada de aceite de oliva
+
 ° 1/4 de cebolla finamente picada
+
 ° 1 diente de ajo
+
 ° 1 taza de camarón
+
 ° 1 cucharada de chile chipotle molido (opcional)
-° 1 cucharadita de sal 
+
+° 1 cucharadita de sal
+
 ° 8 tortillas de harina
+
 ° 1/2 taza de frijol refrito
+
 ° 1/2 taza de queso asadero o amarillo en tiritas
+
 
 ***Faltan los ingredientes de Beto y Luis***
 
