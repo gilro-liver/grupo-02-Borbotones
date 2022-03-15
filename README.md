@@ -42,7 +42,7 @@
 
 ***° 5 En un sartén con aceite caliente fríe las chimichangas de camarón hasta que estén completamente doradas, lo conseguirás en aproximadamente 3 minutos.***
 
-Receta creada por: Gil Romero
+Y al terminar... acompáñalas con una cerveza (o dos)
 <p align ="center">
-<img src="img/gilro.jpg" width="500">
+<img src="img/borbotones.jpg" width="500">
 </p>
