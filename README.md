@@ -36,6 +36,8 @@
 
 ***° 1 Sobre un sartén vierte el aceite de oliva y colócalo a fuego medio, cuando se caliente añade la cebolla y el ajo para que se cocinen.***
 
+***° 3 En cada tortilla de maíz coloca una cucharada de frijoles refritos, espárcelo y agrega los camarones por encima junto con queso. ***
+
 ***° 4 Para cerrar la tortilla en forma de chimichanga doblas la tortilla y unta un poco de yema de huevo en el borde interno de uno de los lados de la tortilla para que se adhiera al seguirla plegando.***
 
 ***° 5 En un sartén con aceite caliente fríe las chimichangas de camarón hasta que estén completamente doradas, lo conseguirás en aproximadamente 3 minutos.***
