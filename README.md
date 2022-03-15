@@ -13,3 +13,8 @@
 ° 8 tortillas de harina
 ° 1/2 taza de frijol refrito
 ° 1/2 taza de queso asadero o amarillo en tiritas
+
+***Faltan los ingredientes de Beto y Luis***
+
+### ¿Cómo hacer chimichangas de camarón? ###
+
