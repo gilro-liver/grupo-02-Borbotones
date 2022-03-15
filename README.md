@@ -41,3 +41,8 @@
 ***° 4 Para cerrar la tortilla en forma de chimichanga doblas la tortilla y unta un poco de yema de huevo en el borde interno de uno de los lados de la tortilla para que se adhiera al seguirla plegando.***
 
 ***° 5 En un sartén con aceite caliente fríe las chimichangas de camarón hasta que estén completamente doradas, lo conseguirás en aproximadamente 3 minutos.***
+
+Receta creada por: Gil Romero
+<p align ="center">
+<img src="img/gilro.jpg" width="500">
+</p>
