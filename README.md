@@ -18,3 +18,4 @@
 
 ### ¿Cómo hacer chimichangas de camarón? ###
 
+***° 1 Sobre un sartén vierte el aceite de oliva y colócalo a fuego medio, cuando se caliente añade la cebolla y el ajo para que se cocinen.***
