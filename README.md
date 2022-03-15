@@ -26,11 +26,14 @@
 
 ° 1/2 taza de queso asadero o amarillo en tiritas
 
+° 1 taza de aceite
 
+° Zumo de limón (opcional)
 
-
-***Faltan los ingredientes de Beto y Luis***
+° Opcional para acompañar: 1/2 taza de crema ácida, 1 taza de guacamole, pico de gallo, cilantro.
 
 ### ¿Cómo hacer chimichangas de camarón? ###
 
 ***° 1 Sobre un sartén vierte el aceite de oliva y colócalo a fuego medio, cuando se caliente añade la cebolla y el ajo para que se cocinen.***
+
+***° 5 En un sartén con aceite caliente fríe las chimichangas de camarón hasta que estén completamente doradas, lo conseguirás en aproximadamente 3 minutos. ***
