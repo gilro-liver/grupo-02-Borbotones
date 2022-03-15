@@ -36,4 +36,4 @@
 
 ***° 1 Sobre un sartén vierte el aceite de oliva y colócalo a fuego medio, cuando se caliente añade la cebolla y el ajo para que se cocinen.***
 
-***° 5 En un sartén con aceite caliente fríe las chimichangas de camarón hasta que estén completamente doradas, lo conseguirás en aproximadamente 3 minutos. ***
+***° 5 En un sartén con aceite caliente fríe las chimichangas de camarón hasta que estén completamente doradas, lo conseguirás en aproximadamente 3 minutos.***
