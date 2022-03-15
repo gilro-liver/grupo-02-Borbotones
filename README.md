@@ -10,3 +10,6 @@
 ° 1 taza de camarón
 ° 1 cucharada de chile chipotle molido (opcional)
 ° 1 cucharadita de sal 
+° 8 tortillas de harina
+° 1/2 taza de frijol refrito
+° 1/2 taza de queso asadero o amarillo en tiritas
