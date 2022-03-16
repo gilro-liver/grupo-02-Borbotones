@@ -14,7 +14,7 @@
 
 ° 1 diente de ajo
 
-° 1 taza de camarón
+° 1 taza de camarón tipo pacotilla (de preferencia Chiapas para un mejor sabor)
 
 ° 1 cucharada de chile chipotle molido (opcional)
 
@@ -31,6 +31,8 @@
 ° Zumo de limón (opcional)
 
 ° Opcional para acompañar: 1/2 taza de crema ácida, 1 taza de guacamole, pico de gallo, cilantro.
+
+
 
 ### ¿Cómo hacer chimichangas de camarón? ###
 
