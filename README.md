@@ -6,6 +6,14 @@
 <img src="img/chimichangas.jpg" width="500">
 </p>
 
+**Antes de comenzar**
+
+Una breve historia del origen de las chimichangas, da clic en la siguiente liga para ver el video.
+
+https://www.youtube.com/watch?v=czkXzhaWQS8
+
+**Ahora si, a cocinar**
+
 **INGREDIENTES**
 
 ° 1 cucharada de aceite de oliva
@@ -33,7 +41,7 @@
 ° Opcional para acompañar: 1/2 taza de crema ácida, 1 taza de guacamole, pico de gallo, cilantro.
 
 <p align ="center">
-<img src="img/Camaron Chiapas.jpg" width="500">
+<img src="img/Camaron Chiapas.jpeg" width="500">
 </p>
 
 ### ¿Cómo hacer chimichangas de camarón? ###
