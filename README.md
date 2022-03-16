@@ -45,7 +45,7 @@ https://www.youtube.com/watch?v=czkXzhaWQS8
 </p>
 
 <p align ="center">
-**Puedes comprar este producto en cualquier supermercado**
+Puedes comprar este producto en cualquier supermercado
 </p>
 
 ### ¿Cómo hacer chimichangas de camarón? ###
