@@ -41,7 +41,7 @@ https://www.youtube.com/watch?v=czkXzhaWQS8
 ° Opcional para acompañar: 1/2 taza de crema ácida, 1 taza de guacamole, pico de gallo, cilantro.
 
 <p align ="center">
-<img src="img/Camaron Chiapas.jpeg" width="500">
+<img src="img/Camaron.PNG" width="500">
 </p>
 
 ### ¿Cómo hacer chimichangas de camarón? ###
