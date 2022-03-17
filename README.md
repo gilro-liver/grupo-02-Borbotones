@@ -60,6 +60,7 @@ Puedes comprar este producto en cualquier supermercado
 
 ***° 5 En un sartén con aceite caliente fríe las chimichangas de camarón hasta que estén completamente doradas, lo conseguirás en aproximadamente 3 minutos.***
 
+***° 6 Retira las chimichangas del aceite y colócalas en un plato con papel absorbente para retirar el exceso de aceite.***
 
 Y al terminar... acompáñalas con una cerveza (o dos)
 <p align ="center">
